@@ -1,2 +1,2 @@
-# hello-world
-Me learning github
+AboutYou
+We look forward to hearing from people, ideally with a minimum of 2 years agency experience, who can demonstrate energy and enthusiasm for any creative challenge they encounter.  Keen to be involved in all manner of accounts, integrated or otherwise and develop their career in an award winning, innovative PR agency. You might also be...•Passionate about coding great websites•Always looking for the next best plugin/coding practice•Up to speed with the latest innovations and development techniques•Passionate about all things social•Happy to work independently, and as part of a team•An exceptional communicator•Highly committed•Results driven•Super organised•Passionate•OntimeWhatYouG
